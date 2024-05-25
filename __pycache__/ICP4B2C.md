@@ -62,4 +62,3 @@ As a Business Development Intern focusing on B2C, your Ideal Customer Profile (I
 **6. Cost Efficiency**
 - Automation reduces operational costs and improves efficiency.
 
-By addressing these pain points, Pretectum CMDM can help B2C companies manage their customer data more effectively, leading to improved customer experiences and operational efficiencies. For more information, you can visit [Pretectum’s website](https://www.pretectum.com).
